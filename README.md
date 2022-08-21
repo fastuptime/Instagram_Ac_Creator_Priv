@@ -2,7 +2,7 @@
 Instagram Ac Creator & Hesap Oluşturucu
 
 
-PROGRAMI SATIN ALMANIZ GEREKMEKTEDİR BURADA DOSYALARI YOKTUR!
+PROGRAMI SATIN ALMANIZ GEREKMEKTEDİR BURADA DOSYALARI YOKTUR! Bir Süreliğine Ücretsiz
 -------------------------------------------------------------
 SATIN ALMAK İÇİN İLETİŞİME GEÇEBİLİRSİNİZ!
 ------------------------------------------
